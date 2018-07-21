@@ -2,18 +2,18 @@
 ---
 ## Assalamu'alaikum
 ---
-Jadilah Proaktif
+## Jadilah Proaktif
 ---
-Merujuk pada tujuan akhir
+## Merujuk pada tujuan akhir
 ---
-Dahulukan yang pertama dan utama
+## Dahulukan yang pertama dan utama
 ---
-Pikirkan Menang / Menang
+## Pikirkan Menang / Menang
 ---
-Berusaha untuk Memahami dahulu, Kemudian Dipahami
+## Berusaha untuk Memahami dahulu, Kemudian Dipahami
 ---
-Bersinergi
+## Bersinergi
 ---
-Asah Gergaji
+## Asah Gergaji
 ---
 #### Wassalamu'alaikum
